@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @adityahacker109251
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning python
+- 📫 How to reach me on insta @aditya_sxn.2006
